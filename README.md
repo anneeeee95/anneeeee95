@@ -11,3 +11,5 @@ Meu nome é Ariane Camilly
 ## _Você entrar em contato comigo_ 📫
 
 ariane.camilly.ribeiro@ecola.pr.gov.br
+
+![](https://media1.tenor.com/m/QOn8hXH318YAAAAC/thank-you-hugs.gif)
